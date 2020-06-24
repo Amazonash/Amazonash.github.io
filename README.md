@@ -1,1 +1,0 @@
-# Amazonash.github.io
